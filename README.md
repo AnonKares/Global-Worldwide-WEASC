@@ -1,4 +1,4 @@
-# WEASC
+# Global/ worldwide WEASC
 
 white eastern asian support community (collective)  / 
 
