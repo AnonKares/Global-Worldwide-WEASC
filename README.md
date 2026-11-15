@@ -1,8 +1,18 @@
 # WEASC
-- Western, Eastern African Support Coalition is a partnership of mixed race east asian and east asian looking people support network but also supports western white and middle eastern or south asian white people in the integration and smooth assimilation into eastern asian nations with positivity and alot of support including mental health support, whilst also advocating for democracy
+- This is a partnership of mixed race east asian and east asian looking people support network but also supports western white and middle eastern or south asian white people in the integration and smooth assimilation into eastern asian nations with positivity and alot of support including mental health support, whilst also advocating for democracy
 WEASC works alongside with eastern RAAN society ( eastern RAAN society accepts every race as long as they follow their transhumanism biohackig guidelines as diversity is the core strength of raan)
 
-white eastern asian support community (collective)  / white eastern African support community(collective)
+white eastern asian support community (collective)  / 
+
+white eastern African support community(collective) /
+
+Western, Eastern African Support Coalition /
+
+eastern Asian phenotype support community/ committee/
+
+eastern phenotype support community /
+
+oriental phenotype support community 
 
 
 - A community and international support network for oriental east asian phenotype or mixed east asian people or those that exhibit these genetic phenotype traits 
