@@ -1,6 +1,8 @@
 # WEASC
-- This is a partnership of mixed race east asian and east asian looking people support network but also supports western white and middle eastern or south asian white people in the integration and smooth assimilation into eastern asian nations with positivity and alot of support including mental health support, whilst also advocating for democracy
-WEASC works alongside with eastern RAAN society ( eastern RAAN society accepts every race as long as they follow their transhumanism biohackig guidelines as diversity is the core strength of raan)
+- This is a partnership of mixed race east asian and east asian looking people support network but also supports western white and middle eastern or south asian white people in the integration and smooth assimilation into eastern asian nations with positivity and alot of support including mental health support, 
+- WEASC advocates for democracy, east Asian phenotype homogeneity and the phenotype assimilation of other races that decide to join
+
+- WEASC works alongside with eastern RAAN society ( eastern RAAN society accepts every race as long as they follow their transhumanism biohackig guidelines as diversity is the core strength of raan)
 
 white eastern asian support community (collective)  / 
 
