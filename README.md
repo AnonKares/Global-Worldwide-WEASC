@@ -1,8 +1,4 @@
 # WEASC
-- This is a partnership of mixed race east asian and east asian looking people support network but also supports western white and middle eastern or south asian white people in the integration and smooth assimilation into eastern asian nations with positivity and alot of support including mental health support, 
-- WEASC advocates for democracy, east Asian phenotype homogeneity and the phenotype assimilation of other races that decide to join
-
-- WEASC works alongside with eastern RAAN society ( eastern RAAN society accepts every race as long as they follow their transhumanism biohackig guidelines as diversity is the core strength of raan)
 
 white eastern asian support community (collective)  / 
 
@@ -16,6 +12,11 @@ eastern phenotype support community /
 
 oriental phenotype support community 
 
+- This is a partnership of mixed race east asian and east asian looking people support network but also supports western white and middle eastern or south asian white people in the integration and smooth assimilation into eastern asian nations with positivity and alot of support including mental health support, 
+- WEASC advocates for democracy, east Asian phenotype homogeneity and the phenotype assimilation of other races that decide to join
+
+- WEASC works alongside with eastern RAAN society ( eastern RAAN society accepts every race as long as they follow their transhumanism biohackig guidelines as diversity is the core strength of raan)
+
 
 - A community and international support network for oriental east asian phenotype or mixed east asian people or those that exhibit these genetic phenotype traits 
 
@@ -28,6 +29,10 @@ Linked subsidiary branch goups include:
 - NNESP (Nepal North east india support party)
 - innuit and circumpole support party
 - Hazaragi support party
+- eastern phenotype Navajo & native Americans support party
+- eastern phenotype Kazakhstani & Central asian support party
+- eastern phenotype Bengali support party
+- eastern phenotype south east Asia support party
 
 The group aims to currently disrupt the colonisation of other planets by non eastern phenotype people including elon musk working alongside Eastern raan society, TDN, South2Western Company, LFH and other entities to accomplish this goal
 
