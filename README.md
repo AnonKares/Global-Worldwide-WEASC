@@ -12,7 +12,7 @@ eastern phenotype support community /
 
 oriental phenotype support community 
 
-- This is a partnership of mixed race east asian and east asian looking people support network but also supports western white and middle eastern or south asian white people in the integration and smooth assimilation into eastern asian nations with positivity and alot of support including mental health support, 
+- This is a partnership of mixed race east asian and east asian looking people support network but also ususlly supports western white and middle eastern or south asian white people in the integration and smooth assimilation into eastern asian nations with positivity and alot of support including mental health support, 
 - WEASC advocates for democracy, east Asian phenotype homogeneity and the phenotype assimilation of other races that decide to join
 
 - WEASC works alongside with eastern RAAN society ( eastern RAAN society accepts every race as long as they follow their transhumanism biohackig guidelines as diversity is the core strength of raan)
@@ -20,7 +20,7 @@ oriental phenotype support community
 
 - A community and international support network for oriental east asian phenotype or mixed east asian people or those that exhibit these genetic phenotype traits 
 
-This includes the identification, extraction, support and eventual recruitment of those with these traits to the group as well as the eastern cultural celebration and confidence, leadership, entrepreneurial hustling, financial wealth management & encouragement of members with the beauty standard of Korean kpop idols and mixed race west east Asian look
+This includes the identification, extraction, support and eventual recruitment of those with these traits to the group as well as the eastern (phenotype) cultural celebration and confidence, leadership, entrepreneurial hustling, financial wealth management & encouragement of members with the beauty standard of Korean kpop idols and mixed race west east Asian look
 
 Linked subsidiary branch goups include:
 - HEFAP (Hot eastern femboy asian persuasion)
