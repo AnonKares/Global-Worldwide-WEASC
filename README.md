@@ -121,5 +121,3 @@ ensure only white or Europeans that want to help eastern Asia and southeast Asia
 
 ensure east and south east Asia remain white skinned and beauty prettiness with eastern Asian phenotypes remain dominant and the only dominant one
 
-ensure pretty or handsome east Asian looking 18 and older boys are provided makeup and commercialised as adult entertainment or adult entertainment objects that are to be pruchased and used by males, females and non binary 
-
